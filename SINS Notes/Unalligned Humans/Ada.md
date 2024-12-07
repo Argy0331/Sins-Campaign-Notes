@@ -1,0 +1,4 @@
+My description: Ada is an older woman, rough, tattooed (possibly ran with a gang in her youth??), has a homemade prosthetic leg, and is a knowledgeable mechanic and craftswoman. She acts as a sort of 'adoptive mother' of Nikolai and took Vanja under her wing when Nikolai brought them in. She appreciates Vanjia's curiosity and keen mind and was willing to let them study their work (allowing Vanja to acquire some minor repair/ crafting knowledge)
+
+3/7/24
+When Asked about [[Nazasha Mattis|Nazasha]] her brow furrows. Name rings a bell. Hasn't seen her for 4-5 years, she wanted to buy a jet engine (paid for it in [[The Dominion|Dominion]] marks)
